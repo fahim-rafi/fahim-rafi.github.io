@@ -1,2 +1,2 @@
 # My personal website
-Help pls
+Hello! This page is under construction!
